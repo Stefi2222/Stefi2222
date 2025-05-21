@@ -13,7 +13,7 @@
 - 🌎 Sueño con crear productos digitales que inspiren, ayuden y hagan sonreír a la gente.
 - 🥁 En mis breaks, el rock y el reggae suenan de fondo… porque la creatividad necesita su propio ritmo.
 
-                    🌈🌈🌈🌈🌈🌈🌈🌈🌈🌈
+═══════ ⋆★⋆ ══════════════ ⋆★⋆ ══════════════ ⋆★⋆ ══════════════ ⋆★⋆ ══════
 
 ## ¿Qué encontrarás en mi perfil?
 - Proyectos que mezclan diseño, funcionalidad y un toque de poesía digital.
